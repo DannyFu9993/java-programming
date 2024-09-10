@@ -1,0 +1,8 @@
+Here in my garaaaaaaaaaaaage. Just bought this new Lamborghini here. Fun to drive up here in the Hollywood Hills. But you know what I like a lot more than knowledge? this new Lamborghini here. But you know what I like a lot more than the new Lamborghini here? My Tedx talk where I talk about this new Lamborghini here. The. The. Thuhuhuhuhuhuuu. In fact I'm a lot more proud of these seven new Hollywood Hills that I had to get installed to hold two thousand new Lamborghinis. :| :o :| :o :| :o UH
+
+It's like the Buffet Warren billionaire says, "The more you earn the more you drive up here in the Hollywood Hills." In fact, the real reason I keep this Lamborghini, is the real reason I keep this Lamborghini here is that it's a reminder. A reminder that drears are still possible because it wasn't that long ago that I was in a little Lamborghini sleeping on bookshelves in the Hollywood Hills with only forty seven billion dollars in my bank account, and forty seven Lamborghinis in my Lamborghini account, and only forty seven hills in my Hollywood account, and only forty seven Tedx Talks where I talk about Warren Buffets in my Tedx Talks where I talk about Warren Buffet account.
+
+But you know what? Something happened that changed my life. I bumped into a Lamborghini, and another Lamborghini, and a few more Lamborghinis. I found five Lamborghinis. I don't call it money anymore I call it fuel units. You must have enough fuel units. You must have enough Lamborghinis. You must CONSTRUCT ADDITIONAL PYLONS.
+
+I'll see you on my website. It's a quick video and you'll see there absolutely nothing!
+
